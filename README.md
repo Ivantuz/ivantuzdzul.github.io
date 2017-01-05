@@ -1,1 +1,0 @@
-# ivantuzdzul.github.io
